@@ -17,3 +17,8 @@ Tonight's National Lottery EuroMillions winning numbers are: 15, 17, 23, 30, 38.
 The Lucky Stars are: 02, 07.
 
 Tonight's estimated jackpot is £15million
+
+
+The first EuroMillions draw was held on February 7th 2004, by three organisations: France's Française des Jeux, Loterías y Apuestas del Estado in Spain and the Camelot in the UK.
+
+The odds of winning any EuroMillions prize are 1 in 13.
